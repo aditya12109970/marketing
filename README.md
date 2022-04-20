@@ -1,2 +1,2 @@
 # marketing
-jo likhna h likh do
+This website belongs to Cubicle which is Indian based company 
